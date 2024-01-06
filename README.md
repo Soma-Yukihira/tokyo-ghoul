@@ -6,7 +6,7 @@
 ![изображение](https://github.com/Soma-Yukihira/tokyo-ghoul/assets/74402541/60847973-993d-462a-86e4-aa73b34f88c9)
 
 
-# 1 
+# 1 ![изображение](https://github.com/Soma-Yukihira/tokyo-ghoul/assets/74402541/c64a55c8-7e66-46b4-a816-43fad020c9d5)
 # 2 ![изображение](https://github.com/Soma-Yukihira/tokyo-ghoul/assets/74402541/3dd4709a-7236-4dae-a3cc-7c3b8797d554)
 
 
